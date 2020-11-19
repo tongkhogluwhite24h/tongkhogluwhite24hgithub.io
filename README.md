@@ -1,2 +1,0 @@
-# tongkhogluwhite24hgithub.io
-tongkhogluwhite24h
